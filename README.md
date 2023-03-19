@@ -5,6 +5,10 @@
 
 - 🌱 I’m currently learning **HTML5 and CSS3**
 
+- 📚 I've a Associate's Degree in **International Business** at **Universidade Feevale**
+
+- 💼 I'm currently working as a purchasing assistant at Via Marte Shoes Ltd.
+
 - 📫 How to reach me: **brunowingert1@gmail.com**
 
 - ⚡ What I like to do: **I love playing videogames, tennis and coding of course**
